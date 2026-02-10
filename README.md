@@ -1,5 +1,5 @@
 <div align="center">
-     [strawpage](https://b1rdhouse.straw.page/) . . [prn.cc](https://prns.cc/tykoi)
+     strawpage - https://b1rdhouse.straw.page/ . . prn.cc - https://prns.cc/tykoi
 </div>
 <img width="2048" height="366" alt="tumblr_574ab79005a84c57a30cbd4b20e0a56c_19975605_2048" src="https://github.com/user-attachments/assets/8649fda9-24dc-4caf-949a-1ebac74c1ddd" />
 <div align="center">
